@@ -9,7 +9,7 @@
 
 - 📫 Você me acha através do email **elbersenna@hotmail.com**
 
-- 📄 Minhas abilidades podem ser conferidas [https://www.linkedin.com/in/elber-sena-50039057/](https://www.linkedin.com/in/elber-sena-50039057/)
+- 📄 Minhas habilidades podem ser conferidas em [https://www.linkedin.com/in/elber-sena-50039057/](https://www.linkedin.com/in/elber-sena-50039057/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
